@@ -20,4 +20,4 @@
 we'd be happy to connect and answer any questions you might have.
 
 * email: hello@memefarmerhamish.com
-* twitter: @memefarmstudios // @memefarmerr
+* twitter: [@memefarmstudios](https://www.twitter.com/memefarmstudios) // [@memefarmerr](https://www.twitter.com/memefarmerr)
