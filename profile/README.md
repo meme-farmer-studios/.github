@@ -21,3 +21,4 @@ we'd be happy to connect and answer any questions you might have.
 
 * email: hello@memefarmerhamish.com
 * twitter: [@memefarmstudios](https://www.twitter.com/memefarmstudios) // [@memefarmerr](https://www.twitter.com/memefarmerr)
+* check out our website: [https://www.memefarmerstudios.com](https://www.memefarmerstudios.com)
